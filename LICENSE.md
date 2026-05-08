@@ -1,4 +1,4 @@
-
+Experience life together rp like never before with exclusive Script for life together rp, the #1 Script. Includes speed and god mode for unbeatable
 
 
 
